@@ -1,1 +1,3 @@
-# massa142.hatenablog.com
+# massa142's blog
+
+くり返す このポリリズム
